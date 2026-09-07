@@ -20,4 +20,4 @@ Here are some ideas to get you started:
 
 Perkenalkan nama saya **Brian Rakha**.<br>
 
-Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/bryanrka)ku ya.
+Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/bryanrka) ku ya.
